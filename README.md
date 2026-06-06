@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JenniferOgwuche
-- 👀 I’m interested in UI/UX design 
+- 👀 I’m a UI/UX designer 
 - 🌱 I’m currently learning open source and research 
 - 💞️ I’m looking to collaborate on anything related to the above
 - 📫 How to reach me...You can reach me via my email address - jenniferogwuche.c@gmail.com 
